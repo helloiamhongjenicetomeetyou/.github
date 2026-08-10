@@ -1,1 +1,10 @@
+<img align="right" height="220" alt="441aa752c667309fee3ae04c5ad9f216" src="https://github.com/user-attachments/assets/499a32e5-e695-4b4c-b4f8-5e1ac7a2ccfc" />
+
+> [!note]
+> 안녕하세요성홍제입니다잘부탁드립니다   
+> 여기는제가공부한내용을정리하거나자료들을저장하는공간입니다   
+> 맛있게가져가십시요   
+
+<br/>
+
 [2026 활동 내역 ->](https://hongjeeee.notion.site/2026-3adde4f8be86800faffcec58e24ba897?pvs=74)
